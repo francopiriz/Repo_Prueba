@@ -1,1 +1,2 @@
 esta es una mandarina
+La mandarina es el fruto 1​ de las diferentes especies de cítricos llamados comúnmente mandarino, entre ellas Citrus reticulata, Citrus unshiu, Citrus × reshni, así como sus híbridos, incluyendo Citrus × tangerina, cuya taxonomía está discutida.2​ Pertenece al grupo de frutos llamados hesperidios y su interior está formado por un considerable número de gajos llenos de zumo o jugo, el cual contiene mucha vitamina C, flavonoides y aceites esenciales.
